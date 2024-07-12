@@ -3,7 +3,7 @@
 
 
 
-<h3>4th year student at NUM</h3>
+<h3>Graduated at NUM</h3>
 
 
 if you like what i do, maybe consider buying me a coffee/tea 🥺👉👈
